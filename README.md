@@ -2,4 +2,4 @@
 
 Step 1 per freecodecamp 
 
-Wasssssup! Giving this coding thing a try to see if I am cut out for it.  
+Whats Up? I'm giving this coding thing a try to see if I'm cut out for it.  
